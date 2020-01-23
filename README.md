@@ -1,1 +1,1 @@
-# bad
+# Wöchentliche Info-Reihe rund um den Sport Badminton
